@@ -1,1 +1,1 @@
-Real men adore Hitler
+Real men adore Jesus
